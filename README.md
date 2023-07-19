@@ -1,3 +1,3 @@
 # suicide_encouragement
-=====
+======
 dfsfdsdfsafsfsdsdsfdsfdsfdsfs
